@@ -1,1 +1,2 @@
-20253381 cho seungbin ss
+20253381 cho seungbin
+Kookmin Univ. SW
