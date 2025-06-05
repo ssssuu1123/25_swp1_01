@@ -1,2 +1,2 @@
 20253381 cho seungbin
-Kookmin Univ. SW
+Kookmin Univ. SW A.I
