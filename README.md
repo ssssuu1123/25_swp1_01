@@ -1,2 +1,2 @@
-20253381 cho seungbin
-Kookmin Univ. SW A.I
+20253381 choseungbin
+Kookmin Univ. SW A.I 25th freshman
